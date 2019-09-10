@@ -1,2 +1,2 @@
-# NG-Semantic-
-Created by Spck.io
+# NA GAMES HOSTING WEBSITE
+Get Na Games updates I'm your browser!
